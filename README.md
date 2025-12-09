@@ -1,2 +1,2 @@
 # ISDC_website
-i am too lazy for that
+let's do this guys 
